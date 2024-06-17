@@ -10,5 +10,3 @@ Here are some ideas to get you started:
 - 🦇 to aq p fazer atividade do allura 👍
 - 🥬 eu gosto de cachorro 
 - 🌼 carambola 
-
-![](https://tenor.com/bzdMK.gif)
