@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 🥬 eu gosto de cachorro 
 - 🌼 carambola 
 
-![](https://tenor.com/pt-BR/view/grey-matter-ben10-big-brain-gif-20748460)
+![](https://tenor.com/bzdMK.gif)
